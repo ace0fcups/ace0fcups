@@ -30,5 +30,5 @@
 𐂐chỉ cần như thế thôi!
 </details> ^TRỰC TIẾP CHÊ MẤY THỨ TUI THÍCH VỚI TUI ĐÂY THÌ LÀ BỊ CẮN ĐẤY NHÉ, KCO NGOẠI LỆ ĐÂU
 
-
+sẽ được upd sau, tr mẹ ơi con lười upd quâ
   
